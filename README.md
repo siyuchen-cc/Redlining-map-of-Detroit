@@ -6,3 +6,4 @@ Policy interventions can have led to segregation in the United States. One such 
 These maps were used explicitly to exclude neighborhoods with high African American representation from receiving government investment. Those neighborhoods, were marked in red, and the practice has become known as redlining. 
  
 
+![test](https://s2.loli.net/2022/03/22/vD7SFxcYPuHQfLN.png)
