@@ -7,3 +7,5 @@ These maps were used explicitly to exclude neighborhoods with high African Ameri
  
 
 ![test](https://s2.loli.net/2022/03/22/vD7SFxcYPuHQfLN.png)
+
+![text](https://s2.loli.net/2022/03/22/bZJR2vczj4fQksY.png)
